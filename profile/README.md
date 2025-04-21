@@ -1,2 +1,2 @@
-# Organization Archived
-This organization has been archived for historical purposes. "Quasar Networks" has rebranded under the name "Quasar Software" and a new organization has been created under that name.
+# Organization Has Been Archived.
+### It is being retained for historical purposes. Thank you for your time!
